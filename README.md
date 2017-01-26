@@ -1,4 +1,4 @@
 # hello-world
 Reboot all online accounts // 2017
 
-This year I decided to purge all of my previous facebook activity, tweets, grams etc... and start anew. For sometime I considered not participating in any social media, but found this to be impractical in this age. It would be nearly impossible to network and new opportunities. The next best option was to curate my online activity and put my best face forward.
+This year I decided to purge all of my previous facebook activity, tweets, grams etc... and start anew. For sometime I considered not participating in any social media, but found this to be impractical in this age. It would be nearly impossible to network and find new opportunities. The next best option was to curate my online activity and put my best face forward.
